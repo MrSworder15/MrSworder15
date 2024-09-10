@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @MrSworder15
-- 👀 I’m interested in your mom
-- 🌱 I’m currently doing your mom
+putting the fries in the bag
